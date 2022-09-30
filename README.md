@@ -1,7 +1,7 @@
 
 # Recept
 
-[pannenkoeken](https://th.bing.com/th/id/OIP.1INBKmieWrd3ZqHy0nH9OAHaFB?pid=ImgDet&rs=1)
+![pannenkoeken](https://th.bing.com/th/id/OIP.1INBKmieWrd3ZqHy0nH9OAHaFB?pid=ImgDet&rs=1)
 
 ## Benodigheiden
 
